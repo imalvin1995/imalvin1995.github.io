@@ -10,6 +10,6 @@ Hi, my name is Alvin.
 
 ### Activities
 
-Format: ![US Summer](https://photos.app.goo.gl/hQWXLCnAWA6TI6Ld2)
+![US Summer](/images/<IMG_4246 class="JPG"></IMG_4246>)
 
 ![GitHub Logo](/images/logo.png)
