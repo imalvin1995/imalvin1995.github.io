@@ -1,10 +1,11 @@
-## Welcome to Alvin's Pages
+## _Welcome to Alvin's Pages_
+[Link](www.linkedin.com/in/y-c-huang1995)
 
-### Introduction
+### _Introduction_
 Hi, my name is Alvin.
 
 
-### Markdown
+### _Background_
 
 Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
 
@@ -23,7 +24,7 @@ Syntax highlighted code block
 
 **Bold** and _Italic_ and `Code` text
 
-[Link](url) and ![Image](src)
+[Link](www.linkedin.com/in/y-c-huang1995) and ![Image](src)
 
 
 For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
