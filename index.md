@@ -10,6 +10,6 @@ Hi, my name is Alvin.
 
 ### Activities
 
-![US Summer](/images/IMG_4246.JPG)
+![US Summer](/images/IMG_7210.JPG)
 
-![GitHub Logo](/images/logo.png)
+![video](/images/IMG_7244.mov)
