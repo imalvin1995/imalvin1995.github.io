@@ -1,5 +1,5 @@
 ## _Welcome to Alvin's Pages_
-[Link](www.linkedin.com/in/y-c-huang1995)
+[Link](https://www.linkedin.com/in/y-c-huang1995)
 
 ### _Introduction_
 Hi, my name is Alvin.
