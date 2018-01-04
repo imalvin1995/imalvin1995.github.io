@@ -7,6 +7,7 @@ Hi, my name is Alvin.
 
 ### _Background_
 **Soochow University** _Bachelor of Science in Physics_
+
 **Boston University** _Summer Course_
 
 ### Activities
