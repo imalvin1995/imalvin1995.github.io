@@ -11,3 +11,4 @@ Hi, my name is Alvin.
 ### Activities
 
 ![US Summer](https://photos.google.com/photo/AF1QipPUkM5rZWNNmhOfSfE73f4Lpt_MiB6PnbGtPHFp)
+![GitHub Logo](/images/logo.png)
