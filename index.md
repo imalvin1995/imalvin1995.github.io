@@ -35,29 +35,27 @@ Hi, my name is Yu-Chaio Huang, also know as Alvin, I'm from Taiwan, I've graduar
 ![US Summer](/images/IMG_6202.JPG)
 11. I've graduated from Stafford House!
 ![US Summer](/images/IMG_6247.JPG)
-12. 
+12. World Trade Center Station, we're in Big Apple!
 ![US Summer](/images/IMG_6607.JPG)
-
-![US Summer](/images/)
-
+13. 
 ![US Summer](/images/IMG_6672.JPG)
-
+14. 
 ![US Summer](/images/IMG_6687.JPG)
-
+15. 
 ![US Summer](/images/IMG_6740.JPG)
-
+16. 
 ![US Summer](/images/IMG_6862.JPG)
-
+17. 
 ![US Summer](/images/IMG_6904.JPG)
-
+18. 
 ![US Summer](/images/IMG_6971.JPG)
-
+19. 
 ![US Summer](/images/IMG_7069.JPG)
-
+20. 
 ![US Summer](/images/IMG_7125.JPG)
-
+21. 
 ![US Summer](/images/IMG_7148.JPG)
-
+22. 
 ![US Summer](/images/IMG_7178.JPG)
 
 **Boston & NY _2016_**
