@@ -60,8 +60,6 @@ Hi, my name is Yu-Chaio Huang, also know as Alvin, I'm from Taiwan, I've graduar
 
 ![US Summer](/images/IMG_7178.JPG)
 
-![US Summer](/images/IMG_7210.JPG)
-
 **Boston & NY _2016_**
 
 **Boston _2015_**
