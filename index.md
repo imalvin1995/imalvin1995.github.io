@@ -15,27 +15,27 @@ Hi, my name is Yu-Chaio Huang, also know as Alvin, I'm from Taiwan, I've graduar
 **Boston & NY _2017_**
 1. The amazing BOSTON sign near Quincy market.
 ![US Summer](/images/IMG_7210.JPG)
-
+2. Library in Harvard University
 ![US Summer](/images/IMG_5729.JPG)
-
+3. Inside of the Old South Church, the atmosphere is really
 ![US Summer](/images/IMG_5955.JPG)
-
+4. Boston Public Library, definitely a great place for study.
 ![US Summer](/images/IMG_5973.JPG)
-
+5. Paul Revere Statue on the Freedom Trail
 ![US Summer](/images/IMG_6031.JPG)
-
-![US Summer](/images/IMG_6079.JPG)
-
+6. Take a selfie in front of MIT, but it's under construction, too bad.  
+![US Summer](/images/IMG_4568.JPG)
+7. Waiting for T everyday.
 ![US Summer](/images/IMG_6131.JPG)
-
+8. Museum of Fine Art, it's free on Wednesday after 4pm.
 ![US Summer](/images/IMG_6141.JPG)
-
-![US Summer](/images/IMG_6191.JPG)
-
+9. In the museum of Fine Art, Let me tell you some secrets!
+![US Summer](/images/IMG_4767.JPG)
+10. DON'T told me you've been to Boston if you didn't eat some Lobster! Well, except vegans.
 ![US Summer](/images/IMG_6202.JPG)
-
+11. I've graduated from Stafford House!
 ![US Summer](/images/IMG_6247.JPG)
-
+12. 
 ![US Summer](/images/IMG_6607.JPG)
 
 ![US Summer](/images/)
