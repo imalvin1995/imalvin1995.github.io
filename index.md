@@ -59,5 +59,16 @@ Hi, my name is Yu-Chaio Huang, also know as Alvin, I'm from Taiwan, I've graduar
 ![US Summer](/images/IMG_7148.JPG)
 
 **Boston & NY _2016_**
+1. Jumbo! The mascot of Tufts.
+![US Summer](/images/IMG_3877.jpeg)
+2. We're at Tufts University! Sorry I' so tired.
+![US Summer](/images/IMG_3880.jpeg)
+3. A great place for study.
+![US Summer](/images/IMG_4246.jpeg)
+4. At Harvard Medical School Brigham and Women's Hospital with my advisor Prof. Mei and 一德.
+![US Summer](/images/IMG_8706.JPG)
+5. With Prof. White in Harvard Medical School-Focused Ultrasound Lab.
+![US Summer](/images/IMG_8823.JPG)
+![US Summer](/images/)
 
 **Boston _2015_**
