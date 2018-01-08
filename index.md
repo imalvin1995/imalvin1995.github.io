@@ -44,19 +44,19 @@ Hi, my name is Yu-Chaio Huang, also know as Alvin, I'm from Taiwan, I've graduar
 15. American Museum of Natural History, it's the statue in the movie "Night at the Museum",Dumb Dumb give me Gum Gum.
 ![US Summer](/images/IMG_6740.JPG)
 16. Charging Bull! Hello Wall Street.
+![US Summer](/images/IMG_6862.JPG)
+17. Time Square!
 ![US Summer](/images/IMG_5394.JPG)
-17. 
-![US Summer](/images/IMG_6904.JPG)
-18. 
+18. The Central Park is so huge, I'm tired.
+![US Summer](/images/IMG_5482.JPG)
+19. Back to Boston! Unprofessional dab at the Revere Beach.
 ![US Summer](/images/IMG_6971.JPG)
-19. 
+20. Boston College! My advisor was graduated from here.
 ![US Summer](/images/IMG_7069.JPG)
-20. 
+21. Kayaking on the Charles River!
 ![US Summer](/images/IMG_7125.JPG)
-21. 
-![US Summer](/images/)
-22. 
-![US Summer](/images/IMG_7178.JPG)
+22. Take a rest and enjoy the amazing view.
+![US Summer](/images/IMG_7148.JPG)
 
 **Boston & NY _2016_**
 
