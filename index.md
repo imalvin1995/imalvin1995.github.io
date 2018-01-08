@@ -1,18 +1,18 @@
-## _**Welcome to Alvin's Pages**_
+# _**Welcome to Alvin's Pages**_
 _**[My Linkedin](https://www.linkedin.com/in/y-c-huang1995)**_
 
-### _Introduction_
+## _Introduction_
 Hi, my name is Yu-Chaio Huang, also know as Alvin, I'm from Taiwan, I've graduared from Soochow University in June 2017. Now I'm applying to graduate school in the U.S., I'm a beignner in Computer Science area and this is the first time I created my own website, I want to use this website to share my life with you guys!
 
-### _Background_
+## _Background_
 **Soochow University** _Bachelor of Science in Physics_
 
 **Boston University** _Summer Course_
 
 
 
-### United State Trips
-**Boston & NY _2017_**
+## United State Trips
+### **Boston & NY _2017_**
 1. The amazing BOSTON sign near Quincy market.
 ![US Summer](/images/IMG_7210.JPG)
 2. Library in Harvard University
@@ -58,7 +58,7 @@ Hi, my name is Yu-Chaio Huang, also know as Alvin, I'm from Taiwan, I've graduar
 22. Take a rest and enjoy the amazing view.
 ![US Summer](/images/IMG_7148.JPG)
 
-**Boston & NY _2016_**
+### **Boston & NY _2016_**
 1. Jumbo! The mascot of Tufts.
 ![US Summer](/images/IMG_3877.jpeg)
 2. We're at Tufts University! Sorry I' so tired.
