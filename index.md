@@ -17,7 +17,7 @@ Hi, my name is Yu-Chaio Huang, also know as Alvin, I'm from Taiwan, I've graduar
 ![US Summer](/images/IMG_7210.JPG)
 2. Library in Harvard University
 ![US Summer](/images/IMG_5729.JPG)
-3. Inside of the Old South Church, the atmosphere is really
+3. Inside of the Old South Church, the atmosphere is really solemn.
 ![US Summer](/images/IMG_5955.JPG)
 4. Boston Public Library, definitely a great place for study.
 ![US Summer](/images/IMG_5973.JPG)
@@ -37,14 +37,14 @@ Hi, my name is Yu-Chaio Huang, also know as Alvin, I'm from Taiwan, I've graduar
 ![US Summer](/images/IMG_6247.JPG)
 12. World Trade Center Station, we're in Big Apple!
 ![US Summer](/images/IMG_6607.JPG)
-13. 
+13. New York City! on the Staten Island Ferry, it's free and it will pass through the Statue of Liberty!
 ![US Summer](/images/IMG_6672.JPG)
-14. 
+14. The Statue of Liberty! It's close enough for free ferry.
 ![US Summer](/images/IMG_6687.JPG)
-15. 
+15. American Museum of Natural History, it's the statue in the movie "Night at the Museum",Dumb Dumb give me Gum Gum.
 ![US Summer](/images/IMG_6740.JPG)
-16. 
-![US Summer](/images/IMG_6862.JPG)
+16. Charging Bull! Hello Wall Street.
+![US Summer](/images/IMG_5394.JPG)
 17. 
 ![US Summer](/images/IMG_6904.JPG)
 18. 
@@ -54,7 +54,7 @@ Hi, my name is Yu-Chaio Huang, also know as Alvin, I'm from Taiwan, I've graduar
 20. 
 ![US Summer](/images/IMG_7125.JPG)
 21. 
-![US Summer](/images/IMG_7148.JPG)
+![US Summer](/images/)
 22. 
 ![US Summer](/images/IMG_7178.JPG)
 
