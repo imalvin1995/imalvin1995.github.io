@@ -19,7 +19,7 @@ Hi, my name is Yu-Chaio Huang, also know as Alvin, I'm from Taiwan, I've graduar
 ![US Summer](/images/IMG_5729.JPG)
 3. Inside of the Old South Church, the atmosphere is really solemn.
 ![US Summer](/images/IMG_5955.JPG)
-
+4.
  Boston Public Library, definitely a great place for study:thumbsup:.
 ![US Summer](/images/IMG_5973.JPG)
 
