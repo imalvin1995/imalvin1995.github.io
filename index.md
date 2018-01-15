@@ -19,11 +19,11 @@ Hi, my name is Yu-Chaio Huang, also know as Alvin, I'm from Taiwan, I've graduar
 ![US Summer](/images/IMG_5729.JPG)
 3. Inside of the Old South Church, the atmosphere is really solemn.
 ![US Summer](/images/IMG_5955.JPG)
-4. Boston Public Library, definitely a great place for study.
+4. Boston Public Library, definitely a great place for study:thumbsup:.
 ![US Summer](/images/IMG_5973.JPG)
-5. Paul Revere Statue on the Freedom Trail
+5. Paul Revere Statue on the Freedom Trail.
 ![US Summer](/images/IMG_6031.JPG)
-6. Take a selfie in front of MIT, but it's under construction, too bad.  
+6. Take a selfie in front of MIT, but it's under construction, too bad:disappointed:.  
 ![US Summer](/images/IMG_4568.JPG)
 7. Waiting for T everyday.
 ![US Summer](/images/IMG_6131.JPG)
@@ -69,6 +69,23 @@ Hi, my name is Yu-Chaio Huang, also know as Alvin, I'm from Taiwan, I've graduar
 ![US Summer](/images/IMG_8706.JPG)
 5. With Prof. White in Harvard Medical School-Focused Ultrasound Lab.
 ![US Summer](/images/IMG_8823.JPG)
-![US Summer](/images/)
+6. Waiting for Lobsters! This is the first time we eat lobsters at Boston, the restaurant called "_The Barking Crab_"
+![US Summer](/images/IMG_0179.jpg)
+7. Lobster again! This restaurant called "_Mount Vernon_"
+![US Summer](/images/IMG_0425.jpg)
+8. My first concert in the State! Gun's n Roses!!!
+![US Summer](/images/IMG_0264.jpg)
+9. World Trade Center! Good morning New York.
+![US Summer](/images/IMG_8711.JPG)
+10. Amazing.
+![US Summer](/images/IMG_8710.JPG)
+11. Meeting my cousin Eric in near Times Square!
+![US Summer](/images/IMG_8724.JPG)
+12. Colombia University!
+![US Summer](/images/IMG_0389.jpg)
+13. We're back Boston! lying on the playground in MIT.
+![US Summer](/images/IMG_8651.JPG)
+14. Bye Boston:sob:. I'll come back!
+![US Summer](/images/IMG_8840.JPG)
 
 **Boston _2015_**
