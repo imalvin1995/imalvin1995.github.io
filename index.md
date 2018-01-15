@@ -84,7 +84,7 @@ Hi, my name is Yu-Chaio Huang, also know as Alvin, I'm from Taiwan, I've graduar
 1. Jumbo! The mascot of Tufts.
 ![US Summer](/images/IMG_3877.jpeg)
 
-2. We're at Tufts University! Sorry I' so tired.
+2. We're at Tufts University! Sorry, jet lag:joy:.
 ![US Summer](/images/IMG_3880.jpeg)
 
 3. A great place for study.
