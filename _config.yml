@@ -1,6 +1,7 @@
 theme: jekyll-theme-slate
 plugins:
   - jemoji
+  
 img.emoji {
     display: inline;
     height: 1em;
