@@ -13,22 +13,19 @@ Hi, my name is Yu-Chaio Huang, also know as Alvin, I'm from Taiwan, I've graduar
 
 ## United State Trips
 ### **Boston & NY _2017_**
+
 1. The amazing BOSTON sign near Quincy market.
 ![US Summer](/images/IMG_7210.JPG)
 2. Library in Harvard University
 ![US Summer](/images/IMG_5729.JPG)
 3. Inside of the Old South Church, the atmosphere is really solemn.
 ![US Summer](/images/IMG_5955.JPG)
-
-4.
- Boston Public Library, definitely a great place for study:thumbsup:.
+4. Boston Public Library, definitely a great place for study:thumbsup:.
 ![US Summer](/images/IMG_5973.JPG)
-
 5. Paul Revere Statue on the Freedom Trail.
 ![US Summer](/images/IMG_6031.JPG)
 6. Take a selfie in front of MIT, but it's under construction, too bad:disappointed:.  
 ![US Summer](/images/IMG_4568.JPG)
-
 7. Waiting for T everyday:monorail:.
 ![US Summer](/images/IMG_6131.JPG)
 
