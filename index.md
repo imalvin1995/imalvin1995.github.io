@@ -19,11 +19,11 @@ Hi, my name is Yu-Chaio Huang, also know as Alvin, I'm from Taiwan, I've graduar
 ![US Summer](/images/IMG_5729.JPG)
 3. Inside of the Old South Church, the atmosphere is really solemn.
 ![US Summer](/images/IMG_5955.JPG)
-4. Boston Public Library, definitely a great place for study:thumbsup:.
+4. Boston Public Library, definitely a great place for study :thumbsup: .
 ![US Summer](/images/IMG_5973.JPG)
 5. Paul Revere Statue on the Freedom Trail.
 ![US Summer](/images/IMG_6031.JPG)
-6. Take a selfie in front of MIT, but it's under construction, too bad :disappointed:.  
+6. Take a selfie in front of MIT, but it's under construction, too bad :disappointed: .  
 ![US Summer](/images/IMG_4568.JPG)
 7. Waiting for T everyday.
 ![US Summer](/images/IMG_6131.JPG)
@@ -85,7 +85,7 @@ Hi, my name is Yu-Chaio Huang, also know as Alvin, I'm from Taiwan, I've graduar
 ![US Summer](/images/IMG_0389.jpg)
 13. We're back Boston! lying on the playground in MIT.
 ![US Summer](/images/IMG_8651.JPG)
-14. Bye Boston :sob:. I'll come back!
+14. Bye Boston :sob: . I'll come back!
 ![US Summer](/images/IMG_8840.JPG)
 
 **Boston _2015_**
